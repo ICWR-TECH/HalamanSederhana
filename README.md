@@ -7,9 +7,7 @@ Halaman sederhana
 <br>
 <img src="Screenshot from 2020-07-14 14-12-21.png" alt="awokwokwok">
 <br>
-<br>
-Maaf lho kalo jelek, namanya juga masih pemula:)
-<br>
+<b>*Note: <b>mohon maaf bila ada kesalahan_/\_
 <br>
 <br>
 Ojok lali visit webku bro:)
